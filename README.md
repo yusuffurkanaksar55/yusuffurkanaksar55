@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **yusuffurkanaksar19@gmail.com**
 
-- ⚡ Fun fact **Quick Learner**
+- ⚡ Real Effect **Quick Learner**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
